@@ -1,0 +1,11 @@
+- 👋 hey im meg
+- 😚 Im 5"0 irl, Im so smollllll 🥺🥺🥹
+- 👹 roblox user: pink_cottoncandylive add me ;)
+- 💪 I’m currently working on my body cause like I wanna be fit not fucking fat 😂
+- 💩 I’m currently learning shit, shit and more shit 
+- 💬 Ask me about anything ill answer it :)
+- 😄 Pronouns: she/her
+- ⚡ Fun fact: I'm in year 10 nearly year 11 omfg and I'm 5"0 😢🥹
+- 🤗 age: 15
+- 🫣 joke: why couldn't the bad sailor learn the alphabet?
+- 😂 answer: because he always got lost at "c" from the ball lol
